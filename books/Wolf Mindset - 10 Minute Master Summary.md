@@ -570,12 +570,3 @@ The source strongly encourages risk-taking and independence. In practical life, 
 | 5 | Survival Instincts and Life Goals |
 
 ---
-
-## ⚠️ Source & Interpretation Note
-
-This document is based on the **supplied transcript/text**, which is itself a narrated summary. The chapter structure, examples, metaphors, and principles above are therefore presented as what the supplied source says.
-
-The terms **“sheep mindset”** and **“wolf mindset”** are used by the source as motivational metaphors. They should not be treated here as established scientific personality categories.
-
-Where a framework is labeled **“source-derived,”** the structure has been organized from ideas explicitly present in the supplied source to make them easier to remember and apply. It is not being presented as a formally named framework unless the source itself names it.
-
