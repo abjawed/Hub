@@ -1,4 +1,4 @@
-# 📚 Sigma Male जैसे ख़तरनाक बनो दुनिया खुद Follow करेगी — 10-Minute Master Summary
+# 📚 Sigma Male — 10-Minute Master Summary
 
 > **Source:** NA
 > **Author:** Charles Remington  
