@@ -1,7 +1,5 @@
 # The Money Assets — 10-Minute Master Summary
 
-> **Source basis:** Supplied Hindi transcript (`Pasted text(6).txt`)  
-> **Author named in transcript:** Parasnath  
 > **Book title named in transcript:** *The Money Assets*  
 > **Source type:** Narrated audiobook-summary video transcript  
 > **Important:** This is a summary of the supplied transcript, not a verified full copy of the original book. Financial examples and claims below are reported as presented in the transcript; they are not guarantees or personalised investment advice.
